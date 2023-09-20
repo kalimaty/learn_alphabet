@@ -1,6 +1,20 @@
 # learn_alphabet
 
 
+![2](https://github.com/kalimaty/learn_alphabet/assets/105967966/f43dc03b-eabc-4290-864f-10ab4cc19003)
+
+
+
+
+
+
+
+
+![1](https://github.com/kalimaty/learn_alphabet/assets/105967966/a880ad13-db85-4341-84fa-4ce80c091c39)
+
+
+
+
 
 ![7](https://github.com/kalimaty/learn_alphabet/assets/105967966/062ea495-a336-48b2-9fee-85ea53c91270)
 
@@ -33,16 +47,6 @@
 
 
 
-![2](https://github.com/kalimaty/learn_alphabet/assets/105967966/f43dc03b-eabc-4290-864f-10ab4cc19003)
-
-
-
-
-
-
-
-
-![1](https://github.com/kalimaty/learn_alphabet/assets/105967966/a880ad13-db85-4341-84fa-4ce80c091c39)
 
 
 
